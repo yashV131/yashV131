@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yashV131, a junior in high school.
+- 👋 Hi, I’m Yashvi, a junior in high school.
 - I write poetry! _Message me for customized pieces_ :)
   
 - 📫 You can find me on instagram **@yashvi.mehta13** or discord **@winter_leaf**
