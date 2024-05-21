@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Yashvi, a junior in high school.
+- 👋 Hi, I’m Yashvi.
 
 
 <!---
