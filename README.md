@@ -1,5 +1,5 @@
-## _WELCOME!_
-- 👋 _I’m **[Yashvi](https://github.com/yashV131)**._
+
+- 👋 _Hi! I’m **[Yashvi](https://github.com/yashV131)**._
 
 
 <!---
